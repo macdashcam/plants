@@ -1,0 +1,6 @@
+# SI 676
+
+## Activity on commits and collaboration in GitHub
+
+### Nov 2026
+### Mac Jackson
